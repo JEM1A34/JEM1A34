@@ -1,3 +1,3 @@
 Bem vindos ao meu perfil​.​💜​
-Meu nome é Nathaly​💟​
+Meu nome é Nathaly​
 
